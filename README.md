@@ -1,7 +1,7 @@
 <div align="center">
 
 
-"GUESS WHAT A NEW FANDOM UGHH!! >:( "
+"planning to be famous.. idk why"
 ---
 
  ![](https://komarev.com/ghpvc/?username=2RedStainz&style=plastic&color=624cb2&label=ik+u+saw+this!)
@@ -10,9 +10,13 @@
 
 i am mostly called *Kaito*, but if yk my other names u can call me with those too idm!
 
-<img src="https://i.pinimg.com/564x/a2/a7/44/a2a744102a4901177a4491f6bd72792e.jpg" alt="Me!!" width=600 hight=600>
+<img src="https://i.pinimg.com/736x/fa/28/a3/fa28a3f51d69eb793f914a66e72a820b.jpg" alt="Me!!" width=600 hight=600>
 
-Guys i swear i might be the first person to ever know this fandom on ponytown??? (aka Mecha-Ude fandom) yay very great
+YUYA SAKAKII!!!!!
+
+<img src="https://i.pinimg.com/736x/49/5e/43/495e43db3c43885e143f9a4444c5b575.jpg" alt="Me!!" width=300 hight=300>
+
+THATS KAITO KID'S CLOTHES WAHT!!
 
 ---
 
