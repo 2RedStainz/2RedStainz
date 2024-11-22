@@ -1,7 +1,7 @@
 <div align="center">
 
 
-"planning to be famous.. idk why"
+"haiii hellooooo :3"
 ---
 
  ![](https://komarev.com/ghpvc/?username=2RedStainz&style=plastic&color=624cb2&label=ik+u+saw+this!)
@@ -10,13 +10,17 @@
 
 i am mostly called *Kaito*, but if yk my other names u can call me with those too idm!
 
-<img src="https://i.pinimg.com/736x/fa/28/a3/fa28a3f51d69eb793f914a66e72a820b.jpg" alt="Me!!" width=600 hight=600>
+<img src="https://i.pinimg.com/736x/25/08/5f/25085ff17eb755151f5542e066569586.jpg" alt="Me!!" width=600 hight=600>
 
-YUYA SAKAKII!!!!!
+thats me above :3 heh
 
-<img src="https://i.pinimg.com/736x/49/5e/43/495e43db3c43885e143f9a4444c5b575.jpg" alt="Me!!" width=300 hight=300>
+<img src="https://i.pinimg.com/736x/cc/0a/3c/cc0a3c793528e3148bfc4f00647131c5.jpg" alt="Me!!" width=300 hight=300>
 
-THATS KAITO KID'S CLOTHES WAHT!!
+pink!!!
+
+<img src="https://i.pinimg.com/736x/97/c1/eb/97c1eb734ef0ff096f54b81e1caac25f.jpg" alt="Me!!" width=200 hight=200>
+
+:3 heheheee
 
 ---
 
