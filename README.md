@@ -4,4 +4,11 @@
 
 ---
 
+ ![](https://komarev.com/ghpvc/?username=2RedStainz&style=plastic&color=624cb2&label=ik+u+saw+this!)
+ 
+<img src="https://i.pinimg.com/736x/0f/d0/11/0fd011fcfc681120c4c2846fc9f59f06.jpg" alt=" " hight=500 width=500>
+
+Me!! >:3
+---
+
 </div>
